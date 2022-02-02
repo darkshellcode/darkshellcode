@@ -1,4 +1,4 @@
-### Perfil em Processo de criaç 👋
+### Perfil em Processo de criação 👋
 
 - 🔭 Teste Perfil
 - 🌱 Estudando Programação
